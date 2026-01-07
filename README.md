@@ -87,5 +87,5 @@ We make rural governance **transparent, accountable, and future-ready**.
 
 Next Milestone: **Prototype Development (Phase-2)**
 
-© 2025 Gram-Sahayak Team, RVCE — All rights reserved.
+© 2026 Gram-Sahayak Team, RVCE — All rights reserved.
 
